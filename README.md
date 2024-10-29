@@ -1,0 +1,5 @@
+- 👋 hi, i’m @ethan-has-appeared!
+- 👀 i’m interested in: cars, tech, and coding.
+- 🌱 i’m currently learning html, css, js, php, python, c#
+- 📫 how to reach me: email(estarbrown@icloud.com), discord(@nahdosentexist), phone(385-323-0862)
+- 😄 pronouns: he/him
